@@ -14,3 +14,18 @@
 
 ![HUAWEI Cloud Computing III Network Basics 07](https://user-images.githubusercontent.com/93165498/145038847-36fadef4-67f2-46ae-abdf-964cf4f9d4ec.jpg)
 
+![HUAWEI Cloud Computing III Network Basics 08](https://user-images.githubusercontent.com/93165498/145038866-6efa752d-f1a5-448f-83b2-bacc7c1f7123.jpg)
+
+![HUAWEI Cloud Computing III Network Basics 09](https://user-images.githubusercontent.com/93165498/145038880-95ef3e60-9814-41ce-83cd-a49d920fd0ef.jpg)
+
+![HUAWEI Cloud Computing III Network Basics 10](https://user-images.githubusercontent.com/93165498/145038898-28a89a1a-b491-43f8-9d56-7f9cc1eb401b.jpg)
+
+![HUAWEI Cloud Computing III Network Basics 11](https://user-images.githubusercontent.com/93165498/145038915-b272c1e0-718b-4d23-8dee-4c324084fecf.jpg)
+
+![HUAWEI Cloud Computing III Network Basics 12](https://user-images.githubusercontent.com/93165498/145038931-d080e742-e151-40e5-a2f7-de4182835316.jpg)
+
+![HUAWEI Cloud Computing III Network Basics 13](https://user-images.githubusercontent.com/93165498/145038954-2799fb3b-f36a-4f9b-87a5-8c038c9038ef.jpg)
+
+![HUAWEI Cloud Computing III Network Basics 14](https://user-images.githubusercontent.com/93165498/145038970-3674552d-efee-4499-9f3d-ac21f33940d2.jpg)
+
+
