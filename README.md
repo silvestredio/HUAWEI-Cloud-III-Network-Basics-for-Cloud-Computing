@@ -46,3 +46,8 @@
 
 ![HUAWEI Cloud Computing III Network Basics 24](https://user-images.githubusercontent.com/93165498/145039169-1141e788-752f-4efc-b565-3ba47bcbd3e8.jpg)
 
+![HUAWEI Cloud Computing III Network Basics 25](https://user-images.githubusercontent.com/93165498/145039193-37581fed-02b6-4945-8455-2a26f7e07936.jpg)
+
+![HUAWEI Cloud Computing III Network Basics 26](https://user-images.githubusercontent.com/93165498/145039211-432cd9c9-84f6-4ead-9533-0201c75ea782.jpg)
+
+![HUAWEI Cloud Thank You](https://user-images.githubusercontent.com/93165498/143689532-73eb0f18-1b8b-4fe4-800c-1382b8ab29d5.jpg)
